@@ -1,1 +1,0 @@
-# itcc-105-midterm-precioso
